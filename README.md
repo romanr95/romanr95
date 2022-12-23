@@ -1,1 +1,1 @@
-### Hi there 👋 My name is Roman! 
+### Hi there 👋 My name is Roman! I'm PoS Validator!
